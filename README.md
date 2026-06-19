@@ -3,7 +3,11 @@
 <img width="2048" height="2048" alt="image" src="https://github.com/user-attachments/assets/59cb4356-ee2f-4840-93b5-c6283b33f0ec" />
 
 $${\color{#ffc9e4}Avdol's \space lovergal!}$$
-
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3166fzj47tyms6vmpabkjbir3po4&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff9df1&bar_color_cover=false">
+  </a>
+</p>
 https://kojieluvzavdol.straw.page ꉂ(˵˃ ᗜ ˂˵)
 
 https://guns.lol/kojosbizzare ⟢
