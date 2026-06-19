@@ -14,7 +14,7 @@ https://jeannpierre.atabook.org ٩(ˊᗜˋ*)و ♡
 
 𝖾𝗍𝖼 𝗌𝗍𝗂𝗅𝗅 𝗎𝗇𝖽𝖾𝗋 𝗐𝗂𝗉 ! (˶˃ ᵕ ˂˶) 𝗂𝗇𝗍 𝗉𝗅𝗌𝗌 ! 
 ⠀⠀⠀⠀⠀⠀⠀   ⠀⠀
-# ⋆.ೃ࿔*:･ $${\color{#ff8cad}Jean \space Pierre \space Polnareff \space fictkinnie!}$$ »
+# ⋆.ೃ࿔*:･ $${\color{#ff8cad}Jean \space Pierre \space Polnareff \space fictive!}$$ »
 <img width="55" height="18" alt="image" 
   src="https://github.com/user-attachments/assets/7a268123-6179-4ba9-9c99-c565ca1681b5" />
 <img width="101" height="18" alt="image" src="https://github.com/user-attachments/assets/e9fc9363-3e0b-4b42-964f-d9eef224dfbf" /> <img width="113" height="18" alt="image" src="https://github.com/user-attachments/assets/5d676f2e-ae93-4e9d-8f6e-62589f07b243" /><img width="50" height="18" alt="image" src="https://github.com/user-attachments/assets/b48adf6b-0133-4d83-af58-1a8ffef646ee" />
