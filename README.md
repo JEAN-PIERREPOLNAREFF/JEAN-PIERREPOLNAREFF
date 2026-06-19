@@ -10,6 +10,7 @@ $${\color{#ffc9e4}Avdol's \space lovergal!}$$
 </p>
 https://kojieluvzavdol.straw.page ꉂ(˵˃ ᗜ ˂˵)
 
+
 https://guns.lol/kojosbizzare ⟢
 
 https://prns.cc/ttcuu ˎˊ˗
